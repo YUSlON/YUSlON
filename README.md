@@ -1,6 +1,7 @@
 ## yusions #1 glazer
 ![](https://media.discordapp.net/attachments/1067930843470909460/1400964351354998895/IMG_1436.png?ex=688e8d3a&is=688d3bba&hm=5a95272274cafba7a740849c07a62767e8ed4a46c7d2b712e4f43226272f8deb&=&format=webp&quality=lossless&width=1145&height=856)
-
+![](https://media.discordapp.net/attachments/1373274223786594334/1400861338523275457/Skarmbild_2025-08-01_172034.png?ex=688e2d49&is=688cdbc9&hm=f7a13121ded86b174637ac36fb28a6317d18f1604c758784fd8a227f914bdbc3&=&format=webp&quality=lossless)
+## if u can't make skins on ur own js say that ;_; also why did u make my skin look so cheap
 <!--
 **YUSlON/YUSlON** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
