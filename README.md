@@ -1,7 +1,7 @@
 ‎‎ ‎ ‎‎ ‎ ‎‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎‎ ‎ ‎‎ ‎ ‎‎‎‎ ‎ ‎‎ ‎ ‎‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎‎ ‎ ‎‎ ‎ ‎‎  ‎‎ ‎ ‎‎ ‎ ‎‎   ‎  ‎  ‎  ‎  ‎ ‎  ‎  ‎  ‎  ‎[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=wsfwspulvvl36v3daswa3l1w7&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&bar_color=bce6ce&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
 ‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎  ‎  ‎  ‎  ‎   ‎ ‎ ‎‎‎[atabook](https://yuslon.atabook.org/) ‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎  ‎ ‎‎ ‎ ‎‎‎ ‎‎ ‎ ‎‎ ‎‎‎[strawpage](https://yuslon.straw.page) ‎‎ ‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎ ‎‎[patreon](https://www.patreon.com/c/YUSlON)
-![](https://media.discordapp.net/attachments/1067930843470909460/1406711713201393765/IMG_1667.png?ex=68a5701f&is=68a41e9f&hm=c86cb2b2c85c92a281458fbc5a12f9c42a65547f5dafa6b8e39a4b37b3ddc8f0&=&format=webp&quality=lossless&width=960&height=960)
+![](https://media.discordapp.net/attachments/1067930843470909460/1406711713201393765/IMG_1667.png?ex=68aeaa9f&is=68ad591f&hm=0afeb3cd277a95a653182dafdd3a2299ccf0c822ec244dce5de6fa1ae59ec2a9&=&format=webp&quality=lossless&width=960&height=960)
 
 <!--
 **YUSlON/YUSlON** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
