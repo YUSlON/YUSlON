@@ -3,7 +3,7 @@
 
 ‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎  ‎  ‎  ‎  ‎   ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎  ‎ ‎‎‎[atabook](https://yuslon.atabook.org/) ‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎  ‎ ‎‎ ‎ ‎‎‎ ‎‎ ‎ ‎‎ ‎‎‎[strawpage](https://yuslon.straw.page) ‎‎ ‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎ ‎‎[patreon](https://www.patreon.com/c/YUSlON)
 
-![](https://media.discordapp.net/attachments/1067930843470909460/1419378709311524954/IMG_2195.png?ex=68d3852f&is=68d233af&hm=3d43c6298d082950106228cef598d0a8a45669285677787ff4f4cbbad360de4e&=&format=webp&quality=lossless&width=1522&height=856)
+ ‎‎  ‎‎  ‎‎  ‎‎  ‎‎  ‎‎  ‎‎  ‎‎  ‎‎  ‎‎  ‎‎  ‎‎   ‎‎  ‎‎  ‎‎  ‎‎  ‎‎  ‎‎  ‎‎  ‎‎  ‎‎  ‎‎  ‎‎  ‎‎  ‎‎  ‎‎  ‎‎  ‎‎  ‎‎ ‎‎  ‎‎  ‎‎  ‎‎  ‎‎  ‎‎ ‎‎  ‎‎  ‎‎  ‎‎  ‎‎  ‎‎  ‎‎  ‎‎  ‎‎  ‎‎   ‎‎  ‎‎  ‎‎  ‎‎  ‎‎  ‎‎  ‎‎  ‎‎  ‎‎  ‎‎ ![](https://media.discordapp.net/attachments/1067930843470909460/1420519210756472902/Adobe_Express_-_file.png?ex=68d5b11b&is=68d45f9b&hm=9b87c160127093247c70ff28e8fc7ff70e079b8aae4194317eb7ad2de5f9b814&=&format=webp&quality=lossless&width=540&height=960)
 
 <!--
 **YUSlON/YUSlON** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
