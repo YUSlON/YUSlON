@@ -1,7 +1,7 @@
 
 ‎‎ ‎ ‎‎ ‎ ‎‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎‎ ‎ ‎‎ ‎ ‎‎‎‎ ‎ ‎‎ ‎ ‎‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎‎ ‎ ‎‎ ‎ ‎‎  ‎‎ ‎ ‎‎ ‎ ‎‎   ‎  ‎  ‎  ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎  ‎      ‎  ‎[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=wsfwspulvvl36v3daswa3l1w7&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&bar_color=bce6ce&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
-‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎  ‎  ‎  ‎  ‎   ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎  ‎ ‎‎‎[atabook](https://yuslon.atabook.org/) ‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎  ‎ ‎‎ ‎ ‎‎‎ ‎‎ ‎ ‎‎ ‎‎‎[strawpage](https://yuslon.straw.page) ‎‎ ‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎ ‎‎[patreon](https://www.patreon.com/c/YUSlON)
+‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎  ‎  ‎  ‎  ‎   ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎  ‎ ‎‎‎[atabook](https://yuslon.atabook.org/) ‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎  ‎ ‎‎ ‎ ‎‎‎ ‎‎ ‎ ‎‎ ‎‎‎[strawpage](https://yuslon.straw.page) ‎‎ ‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎ ‎‎[color](https://open.spotify.com/album/1tNgwDohccU3bCwaylqOQ0)
 
 ![](https://media.discordapp.net/attachments/1390093454482346139/1426650233428901978/Untitled327_20251012061710.png?ex=68ebff11&is=68eaad91&hm=5954604f8d6a455549d03bdaaf148f21c3a5f214dd9ad11d5effb6cb5e573174&=&format=webp&quality=lossless&width=1163&height=856)
 
